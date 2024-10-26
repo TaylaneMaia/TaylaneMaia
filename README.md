@@ -6,9 +6,7 @@
 
 - 💞️ Procuro colaborar em projeto voltados a desenvolvimento web.
 
-- 📫 Como entrar em contato comigo: [E-mail:](tnmaia60@hotmail.com) ou
--
-- [LinkedIn:](https://www.linkedin.com/in/taylane-maia)
+- 📫 Como entrar em contato comigo: [E-mail:](tnmaia60@hotmail.com) ou [LinkedIn](https://www.linkedin.com/in/taylane-maia)
 
 - 😄 Pronomes: Ela/Dela.
 
