@@ -10,7 +10,6 @@
 
 - 😄 Pronomes: Ela/Dela.
 
-- 
 
 
 # 👋 Bem-vindos ao Meu GitHub!
